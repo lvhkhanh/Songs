@@ -6,3 +6,4 @@
 ### Hiệp Lễ: Chúng Con Cần Đến Chúa 
 https://www.youtube.com/watch?v=TjRtPTRUgQA 
 https://www.youtube.com/watch?v=fGRCyJKByZs
+### Kết Lễ: Sống Chứng Nhân https://www.youtube.com/watch?v=Po4EZpImTus
