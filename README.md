@@ -1,4 +1,11 @@
 # Songs
+## CN II MC C
+### NL: [Trên con đường trở về](https://www.youtube.com/watch?v=CCndrIUs0R0)
+### ĐC: [TV 26](https://www.youtube.com/watch?v=MRoZumONgYk)
+### DL: [Dâng Lên](https://www.youtube.com/watch?v=lzLJsja4Uk0)
+### HL: [Biến hình đổi dạng](https://www.youtube.com/watch?v=8JFgPTD6SNY)
+### KL: [Về bến thiên đàng](https://www.youtube.com/watch?v=bCeMIg-ab4U)
+
 ## CN VI TN C
 ### NL: Lên Đền Thánh https://www.youtube.com/watch?v=atHfH2dQHOU
 ### ĐC: TV1  https://www.youtube.com/watch?v=xutHboPSdnc
